@@ -4,4 +4,4 @@ Qué emoción
 
 estoy proponiendo otros cambios
 
-y otros cuantos
+cambio esto porque me lo ha pedido un reviewer
