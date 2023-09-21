@@ -2,4 +2,4 @@
 
 Qué emoción
 
-esto no para
+estoy proponiendo otros cambios
