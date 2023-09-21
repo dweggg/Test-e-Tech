@@ -2,6 +2,6 @@
 
 Qué emoción
 
-esto no para
-
 sugiero este cambio
+
+y este otro
