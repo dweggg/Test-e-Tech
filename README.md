@@ -2,6 +2,6 @@
 
 Qué emoción
 
-sugiero este cambio
+estoy proponiendo otros cambios
 
-y este otro
+cambio esto porque me lo ha pedido un reviewer
